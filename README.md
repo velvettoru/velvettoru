@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://github.com/sea-swallow-me/sea-swallow-me/blob/main/Art_by___yamada_souko_Twitter-removebg-preview_imgupscaler.ai_V1_Fast__2K-removebg-preview.png?raw=true" width="500">
+  <img src="https://github.com/velvettoru/velvettoru/blob/main/satoru!!.jpg?raw=true" width="500">
 </p>
 <p align="center">
-  i miss satoru, a lot.
+  my 18th birthday cake!! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ it's a red velvet cake, 
+which is actually where my github username "velvettoru" came from eheh ♡
 </p>
