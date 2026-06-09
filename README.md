@@ -2,6 +2,6 @@
   <img src="https://github.com/velvettoru/velvettoru/blob/main/satoru!!.jpg?raw=true" width="500">
 </p>
 <p align="center">
-  my 18th birthday cake!! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ it's a red velvet cake, 
-which is actually where my github username "velvettoru" came from eheh ♡
+ 𓏲 ๋࣭  ࣪ ˖ 𝚖𝚢 𝟷𝟾𝚝𝚑 𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 𝚌𝚊𝚔𝚎!! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾ 𝚒𝚝'𝚜 𝚊 𝚛𝚎𝚍 𝚟𝚎𝚕𝚟𝚎𝚝 𝚌𝚊𝚔𝚎, 𝚠𝚑𝚒𝚌𝚑 𝚒𝚜 𝚊𝚌𝚝𝚞𝚊𝚕𝚕𝚢 𝚠𝚑𝚎𝚛𝚎 𝚖𝚢 𝚐𝚒𝚝𝚑𝚞𝚋 𝚞𝚜𝚎𝚛𝚗𝚊𝚖𝚎 "𝚟𝚎𝚕𝚟𝚎𝚝𝚝𝚘𝚛𝚞" 𝚌𝚊𝚖𝚎 𝚏𝚛𝚘𝚖 𝚎𝚑𝚎𝚑 ♡ 
+𝚝𝚑𝚊𝚗𝚔 𝚢𝚘𝚞 𝚜𝚘 𝚖𝚞𝚌𝚑 𝚝𝚘 𝚖𝚢 𝚖𝚘𝚖 𝚏𝚘𝚛 𝚝𝚑𝚒𝚜 𝚜𝚞𝚛𝚙𝚛𝚒𝚜𝚎, 𝚕𝚘𝚟𝚎 𝚑𝚎𝚛 𝚜𝚘 𝚖𝚞𝚌𝚑 (𝚃ᴖ𝚃) ♡ ࿐ ࿔*:･ﾟ
 </p>
