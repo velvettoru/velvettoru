@@ -1,11 +1,11 @@
 <p align="center">
   <small>
     <a href="https://nuhas.atabook.org/">atab಄❍k</a>
-    &nbsp;★&nbsp;
+    &nbsp;✿&nbsp;
     <a href="https://nutoru.straw.page/">'𝒮trawpage</a>
-    &nbsp;★&nbsp;
+    &nbsp;𝄞&nbsp;
     <a href="https://velvettoru.carrd.co/">ca𝗿𝚛𝘥.ᐟ</a>
-    &nbsp;★&nbsp;
+    &nbsp;಄&nbsp;
     <a href="https://guns.lol/nuhasylve">𝔤u𝙣s.ʟօʟ</a>
   </small>
 </p>
