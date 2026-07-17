@@ -4,7 +4,7 @@
     &nbsp;★&nbsp;
     <a href="https://nutoru.straw.page/">ˢᵗʳᵃʷᵖᵃᵍᵉ</a>
     &nbsp;★&nbsp;
-    <a href="https://velvettoru.carrd.co/">ᶜᵃʳʳᵈ</a>
+    <a href="https://velvettoru.carrd.co/">𝒸ₐᵣᵣ𝒹</a>
     &nbsp;★&nbsp;
     <a href="https://guns.lol/nuhasylve">ᵍᵘⁿˢ.ˡᵒˡ</a>
   </small>
