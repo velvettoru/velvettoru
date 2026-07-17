@@ -1,12 +1,12 @@
 <p align="center">
   <small>
-    <a href="https://nuhas.atabook.org/">ATABOOK</a>
+    <a href="https://nuhas.atabook.org/">ᵃᵗᵃᵇᵒᵒᵏ</a>
     &nbsp;★&nbsp;
-    <a href="https://nutoru.straw.page/">STRAWPAGE</a>
+    <a href="https://nutoru.straw.page/">ˢᵗʳᵃʷᵖᵃᵍᵉ</a>
     &nbsp;★&nbsp;
-    <a href="https://velvettoru.carrd.co/">CARRD</a>
+    <a href="https://velvettoru.carrd.co/">ᶜᵃʳʳᵈ</a>
     &nbsp;★&nbsp;
-    <a href="https://guns.lol/nuhasylve">GUNS.LOL</a>
+    <a href="https://guns.lol/nuhasylve">ᵍᵘⁿˢ.ˡᵒˡ</a>
   </small>
 </p>
 <p align="center">
