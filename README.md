@@ -1,6 +1,6 @@
 <p align="center">
   <small>
-    <a href="https://nuhas.atabook.org/">ᵃᵗᵃᵇᵒᵒᵏ</a>
+    <a href="https://nuhas.atabook.org/">ᴀᴛᴀʙᴏᴏᴋ</a>
     &nbsp;★&nbsp;
     <a href="https://nutoru.straw.page/">ˢᵗʳᵃʷᵖᵃᵍᵉ</a>
     &nbsp;★&nbsp;
