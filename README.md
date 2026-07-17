@@ -1,7 +1,13 @@
 <p align="center">
-
-[ATABOOK](https://nuhas.atabook.org/)　★　[STRAWPAGE](https://nutoru.straw.page/)　★　[CARRD](https://velvettoru.carrd.co/)　★　[GUNS.LOL](https://guns.lol/nuhasylve)
-
+  <small>
+    <a href="https://nuhas.atabook.org/">ATABOOK</a>
+    &nbsp;★&nbsp;
+    <a href="https://nutoru.straw.page/">STRAWPAGE</a>
+    &nbsp;★&nbsp;
+    <a href="https://velvettoru.carrd.co/">CARRD</a>
+    &nbsp;★&nbsp;
+    <a href="https://guns.lol/nuhasylve">GUNS.LOL</a>
+  </small>
 </p>
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/download%20(34).jpg?raw=true" width="500">
