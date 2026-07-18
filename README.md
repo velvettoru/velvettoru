@@ -14,5 +14,7 @@
 </p>
 <p align="center">
   he’s so cute i’m going to eat him T^T ♡ 
-  remaking my chopped gh soon...
 </p>
+<p align="center">
+  remaking my chopped gh soon...
+  </p>
