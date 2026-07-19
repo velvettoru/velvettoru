@@ -1,20 +1,13 @@
 <p align="center">
-  <small>
-    <a href="https://nuhas.atabook.org/">atab಄❍k</a>
-    &nbsp;✿&nbsp;
-    <a href="https://nutoru.straw.page/">'𝒮trawpage</a>
-    &nbsp;𝄞&nbsp;
-    <a href="https://velvettoru.carrd.co/">ca𝗿𝚛𝘥.ᐟ</a>
-    &nbsp;಄&nbsp;
-    <a href="https://guns.lol/nuhasylve">𝔤u𝙣s.ʟօʟ</a>
-  </small>
-</p>
+<sub><a href="https://nuhas.atabook.org/">atabook<a/> ⠀my cruni⠀♡ ⠀<a href="https://nutoru.straw.page/">strawpage<a/> ⠀<a href="https://velvettoru.carrd.co/">carrd<a/>
+    <br>
+    <sub><a href="https://guns.lol/nuhasylve">guns.lol<a/> ⠀⠀⠀<a href="https://github.com/vulkarch">@vulkarch<a/> ⠀my hoodie⠀♡
 <p align="center">
-  <img src="https://github.com/velvettoru/velvettoru/blob/main/download%20(34).jpg?raw=true" width="500">
-</p>
+    <img width="180" src="https://github.com/velvettoru/velvettoru/blob/main/%E0%AD%A8_%E0%AD%A7-removebg-preview.png?raw=true">
+<p/>
 <p align="center">
-  he’s so cute i’m going to eat him T^T ♡ 
-</p>
+<sub>test ⠀⠀ ⠀ test</sub>
+<p/>
 <p align="center">
-  remaking my chopped gh soon...
-  </p>
+<sup>test ⠀⠀⠀  ⠀ test</sup>
+<p/>
