@@ -2,7 +2,7 @@
 
 <br> <br> <br> <br>
 
-p align="center">
+<p align="center">
     <img width="180" src="https://github.com/velvettoru/velvettoru/blob/main/output-onlinegiftools-ezgif.com-crop.gif?raw=true">
 <p/> 
 <p align="center">
