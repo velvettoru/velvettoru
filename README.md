@@ -5,7 +5,7 @@
 <p align="center">
 <sub><a href="https://nuhas.atabook.org/">新book<a/>‎ ‎ ‎sign ata ⠀<a href="https://nutoru.straw.page/">strawpage<a/>‎ ‎ read, ok?⠀ <a href="https://guns.lol/nuhasylve">guns.lol<a/>
  <br> 
-    <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, okkk???
+    <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, okkk???  <a href="https://pronouns.cc/@torusnuha">pronouns.cc<a/>‎ ‎ read this too, ok?
 <p align="center">
     <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/%F0%96%B9%AD_Satoru_Gojo_chibi-removebg-preview.png?raw=true">
 <p/> 
