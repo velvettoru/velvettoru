@@ -15,5 +15,5 @@
     <img width="180" src="https://github.com/velvettoru/velvettoru/blob/main/output-onlinegiftools-ezgif.com-crop.gif?raw=true">
 <p/> 
 <p align="center">
-<img width="300" height="320" alt="https://github.com/velvettoru/velvettoru/blob/main/photo_2026-07-22_10-47-39.jpg?raw=true" />
+<img width="300" height="320" alt="Image" src="https://github.com/velvettoru/velvettoru/blob/main/photo_2026-07-22_10-47-39.jpg?raw=true" />
      <p align="center">
