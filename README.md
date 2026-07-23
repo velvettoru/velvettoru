@@ -3,7 +3,7 @@
 <br> <br> <br> <br>
 
 <p align="center">
-<sub><a href="https://nuhas.atabook.org/">新book<a/>‎ ‎ ‎sign ata ⠀<a href="https://nutoru.straw.page/">strawpage<a/>‎ ‎ read, ok?⠀ <a href="https://guns.lol/nuhasylve">guns.lol<a/>
+<sub><a href="https://nuhas.atabook.org/">新book<a/>‎ ‎ ‎sign ata ⠀<a href="https://nutoruuu.straw.page/">strawpage<a/>‎ ‎ read, ok?⠀ <a href="https://guns.lol/nuhasylve">guns.lol<a/>
  <br> 
     <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, okkk???  <a href="https://pronouns.cc/@torusnuha">pronouns.cc<a/>‎ ‎ read this too, ok?
 <p align="center">
