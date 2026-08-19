@@ -10,7 +10,7 @@
     <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-19_20260819214604.png">
 <p/> 
 <p align="center">
-<sub>read sp / carrd BEFORE YOU interact with me bruh...and i love spiders sm btw, if you even care...
+<sub>art by me ! nutoru canon❤️ read sp / carrd BEFORE YOU interact with me bruh. oh and btw i really love spiders…
 <p align="center">
     <img width="180" src="https://github.com/velvettoru/velvettoru/blob/main/output-onlinegiftools-ezgif.com-crop.gif?raw=true">
 <p/> 
