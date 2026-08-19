@@ -7,7 +7,8 @@
  <br> 
     <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, okkk???  <a href="https://pronouns.cc/@torusnuha">pronouns.cc<a/>‎ ‎ read this too, ok?
 <p align="center">
-    <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/%F0%96%B9%AD_Satoru_Gojo_chibi-removebg-preview.png?raw=true">
+    <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-18_20260819163325.png?raw=true![Uploading image.png…]()
+">
 <p/> 
 <p align="center">
 <sub>read sp / carrd BEFORE YOU interact with me bruh...and i love spiders sm btw, if you even care...
