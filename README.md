@@ -7,7 +7,7 @@
  <br> 
     <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, okkk???  <a href="https://pronouns.cc/@torusnuha">pronouns.cc<a/>‎ ‎ read this too, ok?
 <p align="center">
-    <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-18_20260819163325.png?raw=true![Uploading image.png…]()
+    <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-18_20260819163325.png()
 ">
 <p/> 
 <p align="center">
