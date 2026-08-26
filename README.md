@@ -9,7 +9,7 @@
     <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-19_20260819214604.png">
 <p/> 
 <p align="center">
-<sub>art by me ! nutoru canon ♡ ( ꈍ◡ꈍ) , read sp / carrd BEFORE YOU interact with me bruh. oh and btw i really love cats and spiders…
+<sub>art by me ! nutoru canon ♡ ( ꈍ◡ꈍ) , read sp byi !! do not copy or inspo anything from me unless CLOSE friends.
 <p align="center">
     <img width="180" src="https://github.com/velvettoru/velvettoru/blob/main/output-onlinegiftools-ezgif.com-crop.gif?raw=true">
 <p/> 
