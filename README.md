@@ -4,7 +4,7 @@
 
 <p align="center">
 <sub><a href="https://nuhas.atabook.org/">新book<a/>‎ ‎ ‎sign ata ⠀‎ ‎ <a href="https://nutoruuu.straw.page/">strawpage<a/>‎ ‎ read.‎ ‎ 
-    ‎ ‎ <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ read, ok???‎ ‎   ‎ ‎ <a href="https://pronouns.cc/@torusnuha">pronouns.cc<a/>‎ ‎ up to you. ‎ ‎ ‎ <a href="https://repris.org/4satorufans">repris<a/>‎ ‎ for satoru fans‎ ‎ 
+    ‎ ‎ <sub><a href="https://velvettoru.carrd.co/">carrd<a/>‎ ‎ for satoru fans (read repris too)‎ ‎   ‎ ‎ <a href="https://fluffle.cc/nuhalovestoruru">fluffle.cc<a/>‎ ‎ extra. ‎ ‎ ‎ <a href="https://repris.org/4satorufans">repris<a/>‎ ‎ for satoru fans‎ ‎ 
 <p align="center">
     <img width="200" src="https://github.com/velvettoru/velvettoru/blob/main/Untitled19_0016-40-19_20260819214604.png">
 <p/> 
