@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{only you darling , only you babe. }}$  
+ $\text{\small\it\color{#4f3d38}{i wanna be ur setting lotion, }}$  
 </p> 
 
 <br>
@@ -42,7 +42,11 @@
 
 </div>
 
-<br>
+<br> 
+
+<p align="center">
+ $\text{\small\it\color{#91807a}{hold your hair in deep devotion... }}$  
+</p> 
 
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/bun.png?raw=true">
