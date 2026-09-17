@@ -16,7 +16,7 @@
 <td align="center" width="500">
 
 <sub>
-<a href="https://nuhas.atabook.org/">新book</a> &nbsp; sign ata &nbsp;&nbsp;
+𓏲 <a href="https://nuhas.atabook.org/">新book</a> &nbsp; sign ata &nbsp;&nbsp;
 <a href="https://nutoruuu.straw.page/">strawpage</a> &nbsp; read.
 <br><br>
 <a href="https://fluffle.cc/nuhalovestoruru">fluffle.cc</a> &nbsp; extra. &nbsp;&nbsp;
