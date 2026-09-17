@@ -1,4 +1,6 @@
-<img align="left" src="https://github.com/velvettoru/velvettoru/blob/main/%E0%AD%A8_%E0%AD%A7-removebg-preview%20(1).png?raw=true" witdh="384" height="500">
+<p align="center">
+    <img width="200" height="500" alt="https://github.com/velvettoru/velvettoru/blob/main/download-removebg-preview.png?raw=true" />
+<p/> 
 
 <br> <br> <br> <br>
 
