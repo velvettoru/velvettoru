@@ -24,6 +24,7 @@
 <br><br>
 ಄ <a href="https://repris.org/4satorufans">repris</a> ✿˖ &nbsp; for satoru fans (yes another one)
 
+</div>
 </td>
 
 </tr>
