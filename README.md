@@ -6,14 +6,14 @@
 
 <div align="center">
 
-<table>
+<table width="65%">
 <tr>
 
-<td align="center" width="300">
-<img src="https://github.com/velvettoru/velvettoru/blob/main/toru.png?raw=true" alt="Satoru" width="200">
+<td align="center" width="35%">
+<img src="https://github.com/velvettoru/velvettoru/blob/main/toru.png?raw=true" alt="Satoru" width="180">
 </td>
 
-<td align="center" width="500">
+<td align="center" width="65%">
 
 <small>
 𓏲 <a href="https://nuhas.atabook.org/">新book</a> ୭ &nbsp; sign ata &nbsp;&nbsp;
@@ -23,19 +23,11 @@
 𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans.
 <br><br>
 ಄ <a href="https://repris.org/4satorufans">repris</a> ✿˖ &nbsp; for satoru fans (yes another one)
-<small>
+</small>
 
 </td>
 
 </tr>
-</table>
-
-</div>
-</table>
-
-</div>
-
-<br> 
 </table>
 
 </div>
