@@ -45,8 +45,10 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{hold your hair in deep devotion... }}$  
+ $\text{\small\it\color{#91807a}{hold your hair in deep devotion, at least as deep as the Pacific Ocean, i wanna be yours }}$  
 </p> 
+
+<br> 
 
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/bun.png?raw=true">
