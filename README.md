@@ -3,6 +3,10 @@
 </p> 
 
 <p align="center">
+ $\text{\small\it\color{#402b21}{only you darling , only you babe }}$  
+  </p>
+
+<p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/flower.png?raw=true"  alt="Satoru" width="300">
 </p>
 
