@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/velvettoru/velvettoru/blob/main/divider.png?raw=true">
+<img src="https://github.com/velvettoru/velvettoru/blob/main/yes.png?raw=true">
 <p/> 
 
 <p align="center">
