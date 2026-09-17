@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#402b21}{only you darling , only you babe }}$  
+ $\text{\small\it\color{#332821}{only you darling , only you babe. }}$  
   </p>
 
 <p align="center">
