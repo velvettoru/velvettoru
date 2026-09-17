@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="200" alt="https://github.com/velvettoru/velvettoru/blob/main/download-removebg-preview.png?raw=true"/>
+<img src=https://github.com/velvettoru/velvettoru/blob/main/download-removebg-preview.png?raw=true">
 <p/> 
 
 <br> <br> <br> <br>
