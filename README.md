@@ -1,8 +1,6 @@
 <p align="center">
-<img src=https://github.com/velvettoru/velvettoru/blob/main/download-removebg-preview.png?raw=true">
+<img src="https://github.com/velvettoru/velvettoru/blob/main/divider.png?raw=true">
 <p/> 
-
-<br> <br> <br> <br>
 
 <p align="center">
 <sub><a href="https://nuhas.atabook.org/">新book<a/>‎ ‎ ‎sign ata ⠀‎ ‎ <a href="https://nutoruuu.straw.page/">strawpage<a/>‎ ‎ read.‎ ‎ 
