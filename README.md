@@ -38,5 +38,5 @@
 <br>
 
 <p align="center">
-  <img src="https://github.com/velvettoru/velvettoru/blob/main/yesyes.png?raw=true">
+  <img src="https://github.com/velvettoru/velvettoru/blob/main/mhm.png?raw=true">
 </p>
