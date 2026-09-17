@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{i wanna be ur setting lotion, }}$  
+ $\text{\small\it\color{#4f3d38}{i wanna be your setting lotion, }}$  
 </p> 
 
 <br>
@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{hold your hair in deep 𝒹𝑒𝓋𝑜𝓉𝒾𝑜𝓃. }}$  
+ $\text{\small\it\color{#91807a}{hold your hair in deep 𝓭𝓮𝓿𝓸𝓽𝓲𝓸𝓷. }}$  
 </p> 
 
 <br> 
