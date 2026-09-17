@@ -3,4 +3,5 @@
 <p/> 
 
 <p align="left">
-<img src="https://github.com/velvettoru/velvettoru/blob/main/toru.png?raw=true">
+<img src=https://github.com/velvettoru/velvettoru/blob/main/toru.png?raw=true
+" alt="um" width="200">
