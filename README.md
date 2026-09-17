@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{hold your hair in deep 𝓭𝓮𝓿𝓸𝓽𝓲𝓸𝓷. }}$  
+ $\text{\small\it\color{#91807a}{hold your hair in deep 𝒅𝒆𝒗𝒐𝒕𝒊𝒐𝒏. }}$  
 </p> 
 
 <br> 
