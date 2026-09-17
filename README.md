@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
-  <img src="https://github.com/velvettoru/velvettoru/blob/main/gato.png?raw=true">
+  <img src="https://github.com/velvettoru/velvettoru/blob/main/flower.png?raw=true"  alt="Satoru" width="300">
 </p>
 
 <br>
