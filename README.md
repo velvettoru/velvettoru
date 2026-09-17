@@ -1,5 +1,9 @@
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/yes.png?raw=true">
+</p> 
+
+<p align="center">
+  <img src="https://github.com/velvettoru/velvettoru/blob/main/gato.png?raw=true" alt="kitty" width="180">
 </p>
 
 <br>
