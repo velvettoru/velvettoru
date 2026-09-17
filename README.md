@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{hold your hair in deep devotion, at least as deep as the Pacific Ocean, i wanna be yours }}$  
+ $\text{\small\it\color{#91807a}{hold your hair in deep 𝒹𝑒𝓋𝑜𝓉𝒾𝑜𝓃. }}$  
 </p> 
 
 <br> 
