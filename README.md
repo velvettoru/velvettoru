@@ -14,7 +14,8 @@
 </td>
 
 <td align="center" width="500">
-
+<div style="font-size: 16px;">
+  
 <sub>
 𓏲 <a href="https://nuhas.atabook.org/">新book</a> ୭ &nbsp; sign ata &nbsp;&nbsp;
 ˚˖ ʚ <a href="https://nutoruuu.straw.page/">strawpage</a> ɞ ˖˚ &nbsp; read.
