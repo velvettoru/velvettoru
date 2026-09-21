@@ -33,6 +33,7 @@
 𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans.
 <br><br>
 ಄ <a href="https://repris.org/4satorufans">repris</a> ✿˖ &nbsp; for satoru fans (yes another one) 
+  <br><br>
 ⋆˚ <a href="https://pronouns.cc/@torusnuha">pronouns.cc</a> 𝄢 &nbsp; read if you care...hmph (HELPHSF)
 </small>
 
