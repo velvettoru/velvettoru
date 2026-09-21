@@ -34,7 +34,7 @@
 <br><br>
 ಄ <a href="https://repris.org/4satorufans">repris</a> ✿˖ &nbsp; for satoru fans (yes another one) 
   <br><br>
-⋆˚ <a href="https://pronouns.cc/@torusnuha">pronouns.cc</a> 𝄢 &nbsp; read oke
+⋆˚ <a href="https://pronouns.cc/@torusnuha">pronouns.cc</a> 𝄢 &nbsp; read oke.
 </small>
 
 </td>
