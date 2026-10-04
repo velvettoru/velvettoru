@@ -30,10 +30,8 @@
 ˚˖ ʚ <a href="https://nutoruuu.straw.page/">strawpage</a> ɞ ˖˚ &nbsp; read byi.
 <br><br>
 ♯ <a href="https://fluffle.cc/nuhalovestoruru">fluffle</a> 𓏵 &nbsp; extra. &nbsp;&nbsp;
-𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans.
+𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans byi.
 <br><br>
-಄ <a href="https://repris.org/4satorufans">repris</a> ✿˖ &nbsp; for satoru fans byi. 
-  <br><br>
 ⋆˚ <a href="https://pronouns.cc/@nuhadoresatoru">pronouns.cc</a> 𝄢 &nbsp; read oke.
 </small>
 
