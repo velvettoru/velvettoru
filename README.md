@@ -57,3 +57,6 @@
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/mhm.png?raw=true">
 </p>
+
+<p align="center">
+$\text{\small\it\color{#6b3235}{I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST, DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES. WHAT PART OF “DNI” DO YOU NOT UNDERSTAND? READ MY SP BYI BEFORE INTERACTING WITH ME! I’M NOT REPEATING MYSELF. }}$
