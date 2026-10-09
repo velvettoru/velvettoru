@@ -60,12 +60,10 @@
 
 <p align="center">
   <sub>
-    <span style="color: #6b3235;">
-      I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST,<br>
-      DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES.<br>
-      WHAT PART OF “DNI” DO YOU NOT UNDERSTAND?<br>
-      READ MY SP BYI BEFORE INTERACTING WITH ME!<br>
-      I’M NOT REPEATING MYSELF.
-    </span>
+    $\text{\color{#6b3235}{I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST,}}$<br>
+    $\text{\color{#6b3235}{DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES.}}$<br>
+    $\text{\color{#6b3235}{WHAT PART OF “DNI” DO YOU NOT UNDERSTAND?}}$<br>
+    $\text{\color{#6b3235}{READ MY SP BYI BEFORE INTERACTING WITH ME!}}$<br>
+    $\text{\color{#6b3235}{I’M NOT REPEATING MYSELF.}}$
   </sub>
 </p>
