@@ -32,7 +32,9 @@
 ♯ <a href="https://fluffle.cc/nuhalovestoruru">fluffle</a> 𓏵 &nbsp; extra. &nbsp;&nbsp;
 𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans byi.
 <br><br>
-⋆˚ <a href="https://pronouns.cc/@nuhadoresatoru">pronouns.cc</a> 𝄢 &nbsp; read oke.
+⋆˚ <a href="https://pronouns.cc/@nuhadoresatoru">pronouns.cc</a> 𝄢 &nbsp; read oke. 
+  I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST, DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES. 
+  WHAT PART OF “DNI” DO YOU NOT UNDERSTAND? READ MY SP BYI BEFORE INTERACTING WITH ME! I’M NOT REPEATING MYSELF!
 </small>
 
 </td>
