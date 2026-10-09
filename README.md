@@ -33,7 +33,6 @@
 𝄞 <a href="https://velvettoru.carrd.co/">carrd</a> 𐭩 &nbsp; for satoru fans byi.
 <br><br>
 ⋆˚ <a href="https://pronouns.cc/@nuhadoresatoru">pronouns.cc</a> 𝄢 &nbsp; read oke. 
-<p align="center"> <span style="color:#6b3235; font-size:small;"> <i> I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST,<br> DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES.<br> WHAT PART OF “DNI” DO YOU NOT UNDERSTAND?<br> READ MY SP BYI BEFORE INTERACTING WITH ME!<br> I’M NOT REPEATING MYSELF. </i> </span> </p>
 </small>
 
 </td>
