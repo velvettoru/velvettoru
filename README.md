@@ -62,6 +62,6 @@
     $\text{\small\it\color{#8f4044}{I ALREADY MADE MYSELF CLEAR! IF YOU’RE ON MY DNI LIST,}}$<br>
     $\text{\small\it\color{#8f4044}{DO NOT INTERACT WITH ME! SO MANY OF YOU KEEP IGNORING MY BOUNDARIES.}}$<br>
     $\text{\small\it\color{#8f4044}{WHAT PART OF “DNI” DO YOU NOT UNDERSTAND?}}$<br>
-    $\text{\small\it\color{#8f4044}{READ MY SP BYI BEFORE INTERACTING WITH ME!}}$<br>
+    $\text{\small\it\color{#8f4044}{READ MY SP BEFORE YOU INTERACT WITH ME!}}$<br>
     $\text{\small\it\color{#8f4044}{I’M NOT REPEATING MYSELF.}}$
 </p>
