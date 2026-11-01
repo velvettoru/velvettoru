@@ -50,6 +50,12 @@
 
 <br> 
 
+<details>
+  <summary>awards</summary> 
+  
+  [pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame) 
+</details>
+
 <p align="center">
   <img src="https://github.com/velvettoru/velvettoru/blob/main/bun.png?raw=true">
 </p>
