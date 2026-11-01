@@ -62,7 +62,7 @@
 
 <div align="center">
 <details>
-<summary align="center">$\\text{\small\it\color{#4f3d38}{awards }}$</summary>
+<summary align="center">$\text{\small\it\color{#4f3d38}{awards }}$</summary>
 
 <p align="center">
 <a href="https://github.com/pt-fashion">pt-fashion</a>
