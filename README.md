@@ -60,10 +60,11 @@
 
 <br> 
 
+</details>
 <p align="center">
 
 <details>
-  <summary>awards</summary> 
+  <summary>$\text{\small\it\color{#4f3d38}{awards }}$</summary> 
   
   [pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame) 
 </details>
