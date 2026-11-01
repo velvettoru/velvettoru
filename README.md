@@ -65,11 +65,11 @@
 <summary align="center">$\\text{\small\it\color{#4f3d38}{awards }}$</summary>
 
 <p align="center">
-<small>
+<sub>
 <a href="https://github.com/pt-fashion">pt-fashion</a>
-&nbsp;
+&nbsp; · &nbsp;
 <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>
-</small>
+</sub>
 </p>
 </details>
 </div>
