@@ -62,7 +62,6 @@
 
 </details>
 <p align="center">
-
 <details>
   <summary>$\text{\small\it\color{#4f3d38}{awards }}$</summary> 
   
