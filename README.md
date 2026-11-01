@@ -67,7 +67,7 @@
 <p align="center">
 <sub>
 <a href="https://github.com/pt-fashion">pt-fashion</a>
-&nbsp; · &nbsp;
+&nbsp; ୨୧ &nbsp;
 <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a>
 </sub>
 </p>
