@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{i wanna be your setting lotion, }}$  
+ $\text{\small\it\color{#4f3d38}{𝕞𝕦𝕤𝕝𝕚𝕞 ♡ islamophobic 𝗗𝗡𝗜❗ }}$  
 </p> 
 
 <br>
