@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{𝗺𝘂𝘀𝗹𝗶𝗺 ♡ islamophobic 𝗗𝗡𝗜 }}$  
+ $\text{\small\it\color{#4f3d38}{𝗺𝘂𝘀𝗹𝗶𝗺 ♡ islamophobic 𝗗𝗡𝗜 at ALL! }}$  
 </p> 
 
 <br>
