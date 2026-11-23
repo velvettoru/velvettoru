@@ -3,7 +3,9 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{without asking for anything, you placed your hand on my chest and bitterly smiled, }}$  
+ $\text{\small\it\color{#4f3d38}{without asking for anything, you placed your hand on my chest, }}$  
+<br>
+$\text{\small\it\color{#91807a}{and bitterly smiled.}}$
 </p> 
 
 <br>
