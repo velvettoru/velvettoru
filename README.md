@@ -47,9 +47,7 @@ $\text{\small\it\color{#91807a}{and bitterly smiled.}}$
 <br> 
 
 <p align="center">
-$\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget you.}}$
-<br>
-$\text{\small\it\color{#4f3d38}{hold me tighter, until i return to the sky...}}$
+$\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget you.}}$  $\text{\small\it\color{#4f3d38}{hold me tighter, until i return to the sky...}}$
 <br>
 $\text{\small\it\color{#91807a}{your clear and delicate voice won’t let me go,}}$
 <br>
