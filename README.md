@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget you. hold me tighter, until i return to the sky. . . }}$  
+ $\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget you. hold me tighter, until i return to the sky... your clear and delicate voice won’t let me go, hold me even tighter, so i won’t disappear, so i won’t disappear... — le ciel }}$  
 </p> 
 
 <br> 
