@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{i wanna be your setting lotion }}$  
+ $\text{\small\it\color{#4f3d38}{your clear and delicate voice won’t let me go, }}$  
 </p> 
 
 <br>
@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{hold your hair in deep devotion. }}$  
+ $\text{\small\it\color{#91807a}{but i can’t stay here anymore. . . }}$  
 </p> 
 
 <br> 
