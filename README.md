@@ -52,8 +52,6 @@ $\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget yo
 $\text{\small\it\color{#91807a}{your clear and delicate voice won’t let me go,}}$  $\text{\small\it\color{#4f3d38}{hold me even tighter, so i won’t disappear...}}$ 
 <br>
 $\text{\small\it\color{#91807a}{so i won’t disappear...}}$ 
-<br>
-$\text{\small\it\color{#4f3d38}{— le ciel}}$
 </p>
 
 <br> 
