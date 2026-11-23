@@ -3,7 +3,7 @@
 </p> 
 
 <p align="center">
- $\text{\small\it\color{#4f3d38}{your clear and delicate voice won’t let me go, }}$  
+ $\text{\small\it\color{#4f3d38}{without asking for anything, you placed your hand on my chest and bitterly smiled, }}$  
 </p> 
 
 <br>
@@ -45,7 +45,7 @@
 <br> 
 
 <p align="center">
- $\text{\small\it\color{#91807a}{but i can’t stay here anymore. . . }}$  
+ $\text{\small\it\color{#91807a}{i gently kiss your cheek, i will never forget you. hold me tighter, until i return to the sky. . . }}$  
 </p> 
 
 <br> 
