@@ -51,7 +51,11 @@ $\text{\small\it\color{#91807a}{hold me tighter, until i return to the sky...}}$
 <br>
 $\text{\small\it\color{#91807a}{your clear and delicate voice won’t let me go,}}$
 <br>
-$\text{\small\it\color{#91807a}{hold me even tighter, so i won’t disappear... — le ciel}}$
+$\text{\small\it\color{#91807a}{hold me even tighter, so i won’t disappear...}}$ 
+<br>
+$\text{\small\it\color{#91807a}{so i won’t disappear...}}$ 
+<br>
+$\text{\small\it\color{#91807a}{— le ciel}}$
 </p>
 
 <br> 
